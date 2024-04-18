@@ -80,7 +80,7 @@ Finally, if you want to create your video-sharing website, you should invest in 
 
 Ready to embark on your video-sharing journey? Get in touch with [Sangvish](https://sangvish.com/) today and discuss how they can bring your vision to life!
 
-**Explore more**-[https://sangvish.com/youtube-clone/](https://sangvish.com/youtube-clone/)
+Our Youtube clone's **LIVE DEMO**-[https://sangvish.com/youtube-clone/](https://sangvish.com/youtube-clone/)
 
 **contact us,**
 
