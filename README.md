@@ -174,7 +174,7 @@ A feature-rich, fully customizable [YouTube clone script ](https://sangvish.com/
 
 ## Conclusion
 
-Finally, if you want to create your video-sharing website, you should invest in the [best YouTube clone script. ](https://sangvish.com/youtube-clone/) With its powerful features, customization choices, and dependability, you can build a platform that stands out in the overwhelmed online video industry. So why wait? Sangvish provides the best YouTube clone script that meets your requirements and start building your own video-sharing platform today!
+Finally, if you want to create your video-sharing website, you should invest in the [best YouTube clone script](https://sangvish.com/youtube-clone/). With its powerful features, customization choices, and dependability, you can build a platform that stands out in the overwhelmed online video industry. So why wait? Sangvish provides the best YouTube clone script that meets your requirements and start building your own video-sharing platform today!
 
 Ready to embark on your video-sharing journey? Get in touch with [Sangvish](https://sangvish.com/) today and discuss how they can bring your vision to life!
 
